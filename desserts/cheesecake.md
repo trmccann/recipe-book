@@ -34,8 +34,3 @@
 1. Place strawberries on top of pie, starting with the outer edge and working in
 
 Cool at least 12 hours.
-
-## The danish delight topper
-blend together 1 pint of sour cream, 3 tablespoons of sugar and 1/2 tsp vanilla.  Pour on top of cake at the before increasing temperature and baking for the 5 minutes.
-
-THEN, take 1 large box of frozen, whole strawberries, seperate juice from berries place berries on cake, then pour juice over the top.  
