@@ -14,7 +14,7 @@
 ## Steps
 ### Cream fats and sugars
 1. Soften cream cheese in stand mixer
-1. Grind nutmeg and cinnamon
+1. Grind nutmeg and cinnamon while this is being done, don't add quite yet
 1. Add sugars, run for a few minutes until all ingredients are nicely creamed together
 
 ### Mix in other ingredients
