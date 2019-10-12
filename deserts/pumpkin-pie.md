@@ -25,6 +25,6 @@
 ### Add egg
 1. Fold egg into mixture.  Do not use the stand mixer, you don't want to beat the eggs, you just want to incorporate them.
 
-### Cook
+## Cook
 1. Cook at 350 for 45 minutes
 1. Increase temperature to 400 and cook for 15 minutes more
