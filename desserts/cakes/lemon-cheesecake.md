@@ -16,8 +16,10 @@
 ### Ingredients
 * 24 ounces cream cheese, room temperature
 * 1 cup sugar
-* 3 tbsp all purpose flour
-* 1 tbsp lemon zest
+* 1 cup sour cream
+* 3 Tbsp lemon juice
+* 1 Tbsp lemon zest
+* 3 Tbsp all purpose flour
 * 4 large eggs, room temperature
 
 ### Steps
