@@ -39,7 +39,12 @@
 
 ## Lemon curd
 ### Ingredients
-* 
+* 6 tbsp lemon juice
+* 1 tbsp grated lemon zest
+* 2/3 cup sugar
+* 6 large egg yolks
+* 5 tbsp salted butter
+
 ### Steps
 1. While cheesecake cools, make the lemon curd.  Combine all ingredients in a double boiler or in a metal bowl over a pot of water at a par boil.  Occasionally life the bowl off the pot to release the steam.
 1. Heat while whisking constantly until mixture thickens and reaches 160 degrees
