@@ -46,7 +46,7 @@
 * 5 tbsp salted butter
 
 ### Steps
-1. While cheesecake cools, make the lemon curd.  Combine all ingredients in a double boiler or in a metal bowl over a pot of water at a par boil.  Occasionally life the bowl off the pot to release the steam.
+1. While cheesecake cools, make the lemon curd.  Combine all ingredients in a double boiler or in a metal bowl over a pot of water at a par boil.  Occasionally lift the bowl off the pot to release the steam.
 1. Heat while whisking constantly until mixture thickens and reaches 160 degrees
 1. Refrigerate until cool and thickened
 1. Spread in an even layer on top of the cheesecake
@@ -56,4 +56,4 @@
 https://www.lifeloveandsugar.com/lemon-cheesecake/
 
 ## Times made
-* 
+* 11/15/19
