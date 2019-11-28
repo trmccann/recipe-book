@@ -26,5 +26,8 @@
 1. Fold egg into mixture.  Do not use the stand mixer, you don't want to beat the eggs, you just want to incorporate them.
 
 ## Cook
-1. Cook at 350 for 45 minutes
-1. Increase temperature to 400 and cook for 15 minutes more
+1. Put a basin of water in the oven to keep the humidity up
+1. Cook at 350 for 1 hour 45 minutes (maybe)
+
+## Times made
+* 11/28/19 - Thanksgiving, 2019 at Nana & Grandpa's house
